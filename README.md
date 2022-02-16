@@ -1,2 +1,2 @@
 ### Hi hows life!
-LOLOL, HAHA
+LOLOL HAHA
